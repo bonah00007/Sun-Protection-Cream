@@ -1,0 +1,2 @@
+# Sun-Protection-Cream
+Whereas it is largely accepted that a higher SPF is generally more effective than the ones with a lower rating, it is not scientifically proven whether SPF beyond the number 50 are actually more effective or not. For this, there are many advanced countries in the world that restrict assigning SPF to less than or equal to 50. Most of the sun protection creams will ideally be within SF 50 due to this reason. Click Here: http://bestsunprotectioncream.net/﻿
